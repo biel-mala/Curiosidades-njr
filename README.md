@@ -41,4 +41,4 @@ Além disso, o projeto também possui foco em crescimento digital e monetizaçã
 ---
 
 ## 📂 Estrutura do Projeto
-ajuda ai pix 57050239879
+ajuda ai pix 57050239879😁
